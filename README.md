@@ -40,3 +40,4 @@
 
 
 # Signed by AkarGang
+![](diabloandyusuf.jpg)
